@@ -1,4 +1,5 @@
 # Introduction
+![IMG_20190626_130057](https://user-images.githubusercontent.com/10384315/62173489-16bc2b00-b2eb-11e9-872d-63d1f9e69ac5.jpg)
 Looks like you've elected to help care for Calvin, the Pineapple Dog™️! In this repo you'll find all of the information you need to best take care of him as well as some extra knowldege for knowing when he's being a little shit...zhu. 
 
 ## About Calvin
