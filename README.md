@@ -37,7 +37,7 @@ It's not a requirement that he is out for 30min in the morning. A good rule of t
 #### Evening walk
 For the evening walk I recommend that you can be done after he pees twice.
 
-#### Rules for walking
+### Rules for walking
 
 **1. You are in charge**
 
