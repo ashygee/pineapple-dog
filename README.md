@@ -8,6 +8,7 @@ Calvin is a 9 year old half shih tzu/half terrier (shittier) bundle of joy. He l
 ### Health
 - He _does not_ have any known allergies
 - He _does_ have a slight heart murmur. This has never affected him daily.
+- He _may_ cough/sound like he's choking after drinking water too fast. This is normal.
 
 ## Care routine
 Caring for Calvin is fairly simple. Walks, food, and snuggles.
@@ -35,4 +36,5 @@ Calvin is picky and will eat when is hungry. I have tried for years to get him o
 Calvin gets a bowl full of [dry food](https://www.petco.com/shop/en/petcostore/product/natural-balance-small-breed-bites-lid-limited-ingredient-diets-grain-free-potato-and-duck-formula-dry-dog-food) in the morning and in the evening. Water whenever the bowl is empty. At bedtime I also typically leave a small cup of water for him to drink during the night. 
 
 ## Emergency Contacts
-In case of emergency please contact [Arguello Pet Hospital](http://www.arguellopet.com/contact-us.html). If there is an immediate emergency please contact [Animal Internal Medicine & Specialty Services](https://www.aimss-sf.com/contact-us/)
+In case of emergency please contact [Arguello Pet Hospital](http://www.arguellopet.com/contact-us.html).
+If there is an immediate emergency please contact [Animal Internal Medicine & Specialty Services](https://www.aimss-sf.com/contact-us/)
