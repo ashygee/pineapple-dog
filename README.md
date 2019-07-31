@@ -1,6 +1,13 @@
-# Introduction
+# Taking care of Calvin
 ![calvin](https://user-images.githubusercontent.com/10384315/62173535-49662380-b2eb-11e9-866a-acc4697d4f27.png)
 Looks like you've elected to help care for Calvin, the Pineapple Dog™️! In this repo you'll find all of the information you need to best take care of him as well as some extra knowldege for knowing when he's being a little shit...zhu. 
+
+- [About Calvin](#about-calvin)
+- [Health](#health)
+  - [Care routine](#care-routine)
+    - [Walks](#walks)
+    - [Feeding](#feeding)
+- [Emergency contacts](#emergency-contacts)
 
 ## About Calvin
 Calvin is a 9 year old half shih tzu/half terrier (shittier) bundle of joy. He likes smelling everything, sitting on laps, cuddling, being held like a baby, playing with stuffed animals, and doing nightly zoomies. His veterinarian is Dr. Vanessa Reeves at [Arguello Pet Hospital](http://www.arguellopet.com/). 
