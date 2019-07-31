@@ -21,10 +21,11 @@ Calvin doesn't have a strict schedule. His day tends to look something like this
 
 The times aren't specific but more of a range for when he usually is out. There is no definite length of time that you should be out. Generally his morning walk is the longest (around 30min) and any extra walks later is usually just to go around the block a bit to stretch his legs and go to the bathroom.
 
-**Morning walk**
+#### Morning walk
+
 It's not a requirement that he is out for 30min in the morning. A good rule of thumb for the morning walk is if he poops you're pretty good. Sometimes he may poop 2-3 times if you do take an extended walk, so be sure to pack lots of poop bags!
 
-**Evening walk**
+#### Evening walk
 For the evening walk I recommend that you can be done after he pees twice. 
 
 ### Feeding
