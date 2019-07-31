@@ -16,6 +16,8 @@ Calvin is a 9 year old half shih tzu/half terrier (shittier) bundle of joy. He l
 - He _does not_ have any known allergies
 - He _does_ have a slight heart murmur. This has never affected him daily.
 - He _may_ cough/sound like he's choking after drinking water too fast. This is normal.
+- He _may_ start wheezing. This is normal. Just slowly rub his back and comfort him. He will stop after a minute or two.
+- He _may_ start hucking. This is an indication that he is about to vomit. You can pick him up and move him to an area where it will be easier to clean as the hucking is a warning signal.
 
 ## Care routine
 Caring for Calvin is fairly simple. Walks, food, and snuggles.
@@ -26,14 +28,28 @@ Calvin doesn't have a strict schedule. His day tends to look something like this
 - (after 12pm) Afternoon walk (optional)
 - (8pm - 10pm) Evening walk before bed
 
-The times aren't specific but more of a range for when he usually is out. There is no definite length of time that you should be out. Generally his morning walk is the longest (around 30min) and any extra walks later is usually just to go around the block a bit to stretch his legs and go to the bathroom.
+The times aren't specific but more of a range for when he usually is out. There is no definite length of time that you should be out. Generally his morning walk is the longest (around 30min) and any extra walks later is usually just to go around the block a bit to stretch his legs and go to the bathroom. 
 
 #### Morning walk
 
 It's not a requirement that he is out for 30min in the morning. A good rule of thumb for the morning walk is if he poops you're pretty good. Sometimes he may poop 2-3 times if you do take an extended walk, so be sure to pack lots of poop bags!
 
 #### Evening walk
-For the evening walk I recommend that you can be done after he pees twice. 
+For the evening walk I recommend that you can be done after he pees twice.
+
+#### Rules for walking
+
+**1. You are in charge**
+
+Calvin pulls. Don't let him just pull you around to whereever he wants to sniff. You are in control and can pull him away. You will not hurt him. If he tries to stop to go in the opposite direction, just gently pull him in the correct direction.
+
+**2. He does not need to sniff everything**
+
+Calvin will try to stop and sniff just about everything and anything. Please try to veer him away from any area that looks as if it is wet, has other dog urine, or has any unpleasant looking substance/residue. When he sniffs things he really likes to stick his face in it, so for cleanliness, it's best to keep him in open areas.
+
+**3. Wipe after walks**
+
+Doggy wipes are to be used on his face, paws, underbelly, and behind after walks. If he has lots of dirt or has stepped into something unpleasant, this requires a bath. 
 
 ### Feeding
 Food can be left out for Calvin to eat.
@@ -51,4 +67,5 @@ Calvin loves popcorn, apples (remove the skin), chicken (no skin or bone), blueb
 
 ## Emergency Contacts
 In case of emergency please contact [Arguello Pet Hospital](http://www.arguellopet.com/contact-us.html).
+
 If there is an immediate emergency please contact [Animal Internal Medicine & Specialty Services](https://www.aimss-sf.com/contact-us/)
