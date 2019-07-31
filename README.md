@@ -30,10 +30,16 @@ For the evening walk I recommend that you can be done after he pees twice.
 ### Feeding
 Food can be left out for Calvin to eat.
 
-Calvin is picky and will eat when is hungry. I have tried for years to get him on a normal feeding schedule but he usually looks at me and then walks away. If you notice he isn't eating, it's because he wants an audience. He can be a bit of a diva and honestly likes to make sure there is a witness to him eating. This isn't always required but if it feels like he isn't eating, stand next to him and encourage him to eat. This generally works. Or pretending to put in a "sauce". My dog is adorabe but not the brightest. 
+Calvin is picky and will eat when he is hungry. I have tried for years to get him on a normal feeding schedule but he usually looks at me and then walks away. If you notice he isn't eating, it's because he wants an audience. He can be a bit of a diva and honestly likes to make sure there is a witness to him eating. This isn't always required but if it feels like he isn't eating, stand next to him and encourage him to eat. This generally works. Or pretending to put in a "sauce". My dog is adorable but not the brightest. 
 
-**What and how much?**
+#### What and how much?
 Calvin gets a bowl full of [dry food](https://www.petco.com/shop/en/petcostore/product/natural-balance-small-breed-bites-lid-limited-ingredient-diets-grain-free-potato-and-duck-formula-dry-dog-food) in the morning and in the evening. Water whenever the bowl is empty. At bedtime I also typically leave a small cup of water for him to drink during the night. 
+
+#### Treats
+Treats are always good! In fact, he'll probably eat more of these than his actual food. There are two big bags of treats on my desk (2fl near Aki. Look for pineapple house) that are good to reinforce good behavior or just because you want to. **Please don't feed him more than 5 treats per day.** 
+
+#### What about human food? 
+Calvin loves popcorn, apples (remove the skin), chicken (no skin or bone), blueberries, french fries, and potato chips. I do _NOT_ advise feeding him all of these every day, but if you happen to be eating any of these items and want to share, a small bit is ok. If you are curious if he can have any specific human delicacy please refer to Google.
 
 ## Emergency Contacts
 In case of emergency please contact [Arguello Pet Hospital](http://www.arguellopet.com/contact-us.html).
