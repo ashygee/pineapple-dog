@@ -6,11 +6,9 @@ My trip will extend from August 22 - September 13.
 - [Whatsapp](https://wa.me/12318812134)
 - [Email](mailto:aguillaume@protonmail.com)
 
-#### Drop off
-Calvin will be dropped off at HQ on August 21.
+**Drop off:** Calvin will be dropped off at HQ on August 21.
 
-#### Pick-up
-Calvin can be picked up any time on September 14. Location can be determined based on caretaker.
+**Pick-up:** Calvin can be picked up any time on September 14. Location can be determined based on caretaker.
 
 ## Itinerary
 - NYC (Aug 22 - Sep 2)
