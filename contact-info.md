@@ -7,6 +7,6 @@ I will be traveling internationally and will have limited access to wi-fi but wi
 - [Email](mailto:aguillaume@protonmail.com)
 
 ### 🚨EMERGENCY CONTACT
-- In case of immediate medical emergency, please contact [Animal Emergency Services](https://www.aimss-sf.com/contact-us/).
-- For all other medical questions or assistance, please contact [Arguello Pet Hospital](http://www.arguellopet.com/contact-us.html).
+In case of immediate medical emergency, please contact [Animal Emergency Services](https://www.aimss-sf.com/contact-us/).
+
 
