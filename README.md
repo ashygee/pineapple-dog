@@ -67,5 +67,3 @@ Calvin loves popcorn, apples (remove the skin), chicken (no skin or bone), blueb
 
 ## Emergency Contacts
 In case of emergency please contact [Arguello Pet Hospital](http://www.arguellopet.com/contact-us.html).
-
-If there is an immediate emergency please contact [Animal Internal Medicine & Specialty Services](https://www.aimss-sf.com/contact-us/)
