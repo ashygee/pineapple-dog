@@ -6,7 +6,4 @@ I will be traveling internationally and will have limited access to wi-fi but wi
 - [Whatsapp](https://wa.me/12318812134)
 - [Email](mailto:aguillaume@protonmail.com)
 
-### 🚨EMERGENCY CONTACT
-In case of immediate medical emergency, please contact [Animal Emergency Services](https://www.aimss-sf.com/contact-us/).
-
 
