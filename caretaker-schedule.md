@@ -22,6 +22,6 @@
 | Mon | 9/09 | Alison | __ |
 | Tue | 9/10 | Alison | __ |
 | Wed | 9/11 | Alison | __ |
-| Thu | 9/12 | | __ |
-| Fri | 9/13 | | __ |
-| Sat | 9/14 | | __ |
+| Thu | 9/12 | Victor (?) | __ |
+| Fri | 9/13 | Victor (?) | __ |
+| Sat | 9/14 | Victor (?) | __ |
