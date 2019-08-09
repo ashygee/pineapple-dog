@@ -15,13 +15,13 @@
 | Mon | 9/02 | Lilia | __ |
 | Tue | 9/03 | | __ |
 | Wed | 9/04 | | __ |
-| Thu | 9/05 | | __ |
-| Fri | 9/06 | | __ |
-| Sat | 9/07 | | __ |
-| Sun | 9/08 | | __ |
+| Thu | 9/05 | Aki | __ |
+| Fri | 9/06 | Aki | __ |
+| Sat | 9/07 | Aki | __ |
+| Sun | 9/08 | Aki | __ |
 | Mon | 9/09 | Alison | __ |
 | Tue | 9/10 | Alison | __ |
 | Wed | 9/11 | Alison | __ |
-| Thu | 9/12 | Victor (?) | __ |
-| Fri | 9/13 | Victor (?) | __ |
-| Sat | 9/14 | Victor (?) | __ |
+| Thu | 9/12 | Rachel (?) | __ |
+| Fri | 9/13 | Rachel (?) | __ |
+| Sat | 9/14 | Rachel (?) | __ |
