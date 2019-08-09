@@ -1,3 +1,5 @@
+Below is the finalized schedule. For any assistance during the day Aki (@akinaito) and Joyce (@ohjoycelau) said they can keep an eye on him down by my desk (2fl, with pineapple hut).
+
 | Day | Date | Caretaker | Backup |
 | --- | ---- | --------- | ------ |
 | Wed | 8/21 | Victor | Lilia |
@@ -13,8 +15,8 @@
 | Sat | 8/31 | Lilia | -- |
 | Sun | 9/01 | Lilia | -- |
 | Mon | 9/02 | Lilia | __ |
-| Tue | 9/03 | | __ |
-| Wed | 9/04 | | __ |
+| Tue | 9/03 | Victor | __ |
+| Wed | 9/04 | Victor | __ |
 | Thu | 9/05 | Aki | __ |
 | Fri | 9/06 | Aki | __ |
 | Sat | 9/07 | Aki | __ |
@@ -22,6 +24,6 @@
 | Mon | 9/09 | Alison | __ |
 | Tue | 9/10 | Alison | __ |
 | Wed | 9/11 | Alison | __ |
-| Thu | 9/12 | Rachel (?) | __ |
-| Fri | 9/13 | Rachel (?) | __ |
-| Sat | 9/14 | Rachel (?) | __ |
+| Thu | 9/12 | Rachel | __ |
+| Fri | 9/13 | Rachel | __ |
+| Sat | 9/14 | Rachel | __ |
