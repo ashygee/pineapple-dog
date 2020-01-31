@@ -54,7 +54,7 @@ Doggy wipes are to be used on his face, paws, underbelly, and behind after walks
 ### Feeding
 Food can be left out for Calvin to eat.
 
-Calvin is picky and will eat when he is hungry. I have tried for years to get him on a normal feeding schedule but he usually looks at me and then walks away. If you notice he isn't eating, it's because he wants an audience. He can be a bit of a diva and honestly likes to make sure there is a witness to him eating. This isn't always required but if it feels like he isn't eating, stand next to him and encourage him to eat. This generally works. Or pretending to put in a "sauce". My dog is adorable but not the brightest. 
+Calvin is picky and will eat when he is hungry. I have tried for years to get him on a normal feeding schedule but he usually looks at me and then walks away. If you notice he isn't eating, it's because he wants an audience. He can be a bit of a diva and honestly likes to make sure there is a witness to him eating. This isn't always required but if it feels like he isn't eating, stand next to him and encourage him to eat. This generally works. Or pretending to put in a "sauce". My dog is adorable but not the brightest. 😅
 
 #### What and how much?
 Calvin gets a bowl full of [dry food](https://www.petco.com/shop/en/petcostore/product/natural-balance-small-breed-bites-lid-limited-ingredient-diets-grain-free-potato-and-duck-formula-dry-dog-food) in the morning and in the evening. Water whenever the bowl is empty. At bedtime I also typically leave a small cup of water for him to drink during the night. 
