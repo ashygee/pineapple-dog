@@ -1,6 +1,6 @@
 ![calvin](https://user-images.githubusercontent.com/10384315/62173535-49662380-b2eb-11e9-866a-acc4697d4f27.png)
 # Taking care of Calvin
-Looks like you've elected to help care for Calvin, the Pineapple Dog™️! In this repo you'll find all of the information you need to best take care of him as well as some extra knowldege for knowing when he's being a little shit...zhu. 
+Hie, looks like you've elected to help care for Calvin, the Pineapple Dog™️! In this repo you'll find all of the information you need to best take care of him as well as some extra knowldege for knowing when he's being a little shit...zhu. 
 
 - [About Calvin](#about-calvin)
 - [Health](#health)
